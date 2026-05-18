@@ -1,6 +1,6 @@
 # Claude Partner Network — SD's Team Roster
 
-We got accepted into the Claude Partner Network. This is the team we're building.
+We are starting the process to be included in the Claude Partner Network. This is the team we're building.
 
 ---
 
